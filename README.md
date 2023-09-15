@@ -1,1 +1,1 @@
-# Bharath-intern
+# Bharat-Intern
